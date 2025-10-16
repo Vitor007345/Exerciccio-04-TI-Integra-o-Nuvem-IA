@@ -1,0 +1,1 @@
+# Exerciccio-04-TI-Integra-o-Nuvem-IA
